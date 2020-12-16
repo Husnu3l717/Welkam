@@ -1,2 +1,0 @@
-# Welkam
-Selamat datang
